@@ -64,5 +64,5 @@ Explore my ongoing research, custom automation scripts, and additional tools dir
 
 ---
 <div align="center">
-  <i>Stay curious, keep reversing.</i> 🐾 <b>Sphynx</b>
+  <i>Stay Set Your heart ablaze</i> 🐾 <b>Sphynx</b>
 </div>
